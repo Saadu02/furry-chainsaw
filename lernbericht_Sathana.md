@@ -17,7 +17,7 @@ vorgeht und gut liest, versteht man was als nächstes zu tun ist.
 
 ![image](https://user-images.githubusercontent.com/111046257/185326546-ee4ecea8-e8a9-4769-8145-ffbd073441d6.png)
 
-Dieser Link war hilfreich, als ich nicht mehr weiterkam. ![Link](https://www.la-bavarese.com/video-anleitungen/)
+Dieser Link war hilfreich, als ich nicht mehr weiterkam. [Link](https://www.la-bavarese.com/video-anleitungen/)
 
 ## Verifikation
 
@@ -28,7 +28,7 @@ YouTube verschiedene Videos anschauen und das Lösen.
 
 👍 Ich lernte selbstständig und arbeitete sauber. Dank den Videos konnte ich mein Hoodie fertig nähen.
 
-👎 Da ich mit der Musik gearbeitet habe, war ich paar Mal abgelenkt und machte Fehler. Beim Nähen habe ich vergessen eine Lücke freizuhalten oder manchmal gab es knoten beim Nähen.
+👎 Da ich mit der Musik gearbeitet habe, war ich paar Mal abgelenkt und machte Fehler. Beim Nähen habe ich vergessen eine Lücke freizuhalten oder manchmal gab es knoten beim vernähen.
 
 **VBV**: 
 Nächstes Mal arbeite ich in einem ruhigen Ort ohne Musik und schaue das ich keine knoten machen. 
